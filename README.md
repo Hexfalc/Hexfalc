@@ -1,7 +1,7 @@
 Hi I'm Hex Falc. Probably will use this profile for nothing.
 
 
-## Shitty Website: https://hexfalc.github.io/
+## My Shitty Website: https://hexfalc.github.io/
 
 
 
